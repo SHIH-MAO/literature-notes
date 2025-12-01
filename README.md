@@ -1,1 +1,1 @@
-This is my literature notes
+這是我的閱讀日記，我希望每月至少讀完一本書，並分享其內容。
